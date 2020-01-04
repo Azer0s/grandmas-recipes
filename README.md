@@ -7,3 +7,6 @@ Die Rezeptesammlung meiner Oma, sortiert und vom Russischen ins Deutsche überse
   * [Gefilte Fisch](Jüdische%20Küche/Gefilte%20Fisch.md)
   * [Motzemehlknödel](Jüdische%20Küche/Motzemehlknödel.md)
   * [Roter Kren](Jüdische%20Küche/Roter%20Kren.md)
+
+* [Russische Küche](Russische%20Küche/)
+  * [Pelmeni](Russische%20Küche/Pelmeni.md)
