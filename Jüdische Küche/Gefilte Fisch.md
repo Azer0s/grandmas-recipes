@@ -21,7 +21,7 @@ Zwiebeln klein würfeln und 200g davon anrösten bis gold-braun. Die restlichen 
 
 Fisch waschen und in etwa 4-5 cm große Stücke (mit Knochen) scheiden. Danach die Haut abziehen und die Knochen auslösen so das nur mehr das Fischfleisch ohne Knochen und Haut übrig bleibt. Die Knochen und Haut für später im Kühlschrank aufbewahren.
 
-Die 200g gerösteten Zwiebel auskühlen lassen und zusammen mit den Fischstücken farschieren. Das Ei dazugeben. Salzen und Pfeffern, gut durchkneten und solange ein bisschen Wasser hinzufügen (nicht zu viel!) bis man die Fischmasse formen kann und sie noch fest bleibt.
+Die 200g gerösteten Zwiebel auskühlen lassen und zusammen mit den Fischstücken faschieren. Das Ei dazugeben. Salzen und Pfeffern, gut durchkneten und solange ein bisschen Wasser hinzufügen (nicht zu viel!) bis man die Fischmasse formen kann und sie noch fest bleibt.
 
 Die Fischmasse in eine Schüssel geben, mit Klarsichtfolie abdecken und über Nacht in den Kühlschrank stellen.
 
